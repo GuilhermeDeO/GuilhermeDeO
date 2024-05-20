@@ -6,4 +6,4 @@
 - Nunca mais vou usar isso daqui depois da escola 🤓
 - Gosto de desenhar e vou fazer faculdade onde eu vou continuar.. Desenhando! ✨
 
-![.](https://tenor.com/pt-BR/view/angel-angel-devil-gif-27431693)
+![.](https://media1.tenor.com/m/ZQiY3sS7IGMAAAAd/angel-angel-devil.gif)

@@ -3,6 +3,7 @@
 **Sou o Guileh, prazer!**
 
 - Não gosto de programar, mas gosto de ver gente fazendo programa 🤫
+- Meu Inglês é bom, confia 🤡
 - Nunca mais vou usar isso daqui depois da escola 🤓
 - Gosto de desenhar e vou fazer faculdade onde eu vou continuar.. Desenhando! ✨
 
